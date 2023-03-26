@@ -1,1 +1,0 @@
-# egoldfortune.github.io
